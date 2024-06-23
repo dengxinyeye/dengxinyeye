@@ -1,4 +1,4 @@
-![image](https://github.com/dengxinyeye/dengxinyeye/assets/125671000/978c88cf-56c4-4796-b7b4-6929a009a7a4)## Hi there , I'm dengxinyeye 👋
+## Hi there , I'm dengxinyeye 👋
 
 😝 I'm a programmer trying hard to make money to marry Gojo Satoru.  
 
